@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pochemugromov
-- 👀 I’m interested in PUSSKIY RAP
+- 👀 I’m interested in RUSSKIY RAP
 - 🌱 I’m currently learning UNDERGROUND RAP
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
